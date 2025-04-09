@@ -1,1 +1,0 @@
-# Kastomi_stanek
